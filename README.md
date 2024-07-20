@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding(Python Java C++ C# HTML React css Js)        
 - 🌱 I’m currently learning How to solve my booty or poop in my fucking daily life...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: emmmmmm...Perhaps you can send a mail to huangzheyi2007@gmail.com 
+- 📫 How to reach me: emmmmmm...Perhaps you can send a e-mail to huangzheyi2007@gmail.com 
 - 😄 Pronouns: Brodick(My firends always call it🤣)       
 - ⚡ Fun fact: I lost a girl and I miss she now...(lol)   
 
